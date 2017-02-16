@@ -1,1 +1,1 @@
-‘§¿¿£∫graceZYC.github.io/blog/boke.html
+‘§¿¿£∫[≤‚ ‘](graceZYC.github.io/blog/boke.html)
